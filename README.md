@@ -220,4 +220,4 @@ Power Soccer is offered as a complete free version with all features and updates
 Don't miss out on the chance to become a football manager and player with Power Soccer! Download today and start your journey in the world of soccer!
 
 ---
-**Last updated:** 2026-09-19 16:15:34 UTC
+**Last updated:** 2026-09-19 19:11:01 UTC
